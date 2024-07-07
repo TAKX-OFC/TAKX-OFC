@@ -43,18 +43,13 @@
 
 ***Click [MY CHAT WA](https://wa.me/263785192250)***
 
-***Click [MORE INFO ABOUT ME](https://vajira-api-7967fdc132a8.herokuapp.com/)***
+***Click [MORE INFO ABOUT ME](https://www.atom.bio/munyoro-bot_/)***
 
 
 
-## THANKS TO VISIT ME
+## THANKS TO VISIT 
 
-• Asif King - Web Design
 
-• Kasun - Testing
-
-• Danidu Nirmal - Logo Design
-
-• Ushani - Voice Helper
+> ````its your lovely son TAKX-OFC TAKUNDA CHARLES KANJUMA FROM SEKE ZIMBABWE I LEARN AT JONAS HIGH````
 
 
